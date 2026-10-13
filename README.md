@@ -1,0 +1,2 @@
+# premium-dirk-forging-001-scottish-dirk-forging-highla
+Stop wasting time on generic blade tutorials that ignore the unique geometry and hilt work of a true Scottish dirk—get a dedicated system that takes you from raw steel to a historically accurate highland dagger.  This hub solves the frustration of trying to piece together scattered information by delivering a focused, step-by-step blueprint for for
